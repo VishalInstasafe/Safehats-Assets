@@ -1,0 +1,1 @@
+# Safehats-Assets
